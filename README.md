@@ -1,0 +1,2 @@
+# forexking
+JOINT2PURCHASE IS A CONVENIENT PLATFORM FOR COLLECTIVE PURCHASE OF INFORMATION PRODUCTS. Our service successfully solves the main task of the project-we give the possibility of collective purchases for all popular books, audio and video tutorials, seminars, programs, scripts, databases, templates and themes. The purchase will be cheaper than the full cost several times. New knowledge will cost no more than a Cup of coffee. Get the maximum benefit for the minimum money!  https://joint2purchase.com
